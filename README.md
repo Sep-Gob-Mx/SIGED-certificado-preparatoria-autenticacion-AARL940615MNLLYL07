@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AARL940615MNLLYL07
+AARL940615MNLLYL07
